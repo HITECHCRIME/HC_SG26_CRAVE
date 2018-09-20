@@ -10,16 +10,16 @@ https://www.youtube.com/watch?v=DXa-lqOGxrc
 ^
 endlessly furious, never I get
 lusting after your marks inside my head
-smile's too sweet to course my veins 
+smile's too sweet - course through my veins 
 with no effect fuck
 every damn time 
 every crush dies 
 all of the nights
 give me that handpoke or slit my throat 
-feel the shame - how about my crave ye
+feelin the shame - how about my crave ye
 just put your hand against my neck, 
 slow the bleed, slow the bleed
-slow the bleed ye
+slow the bleed, slow the bleeed ye
 
 all the people I want or need
 beyond the reach, I'm not free of
