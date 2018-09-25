@@ -21,7 +21,7 @@ sow what you reap
 inside, my mind
 crops
 
-0:31 **VERSE 1**
+**VERSE 1**
 endlessly furious, never I get
 lusting after your marks inside my head
 smile's too sweet - course through my veins 
