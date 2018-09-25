@@ -39,20 +39,9 @@ slow the bleed, slow the bleed
 slow the bleed, slow the bleeed ye
 
 **VERSE 2**
-
-
-
-of the cravings, bind and chain to me
-bind to me bitch
-
-
-
-
-
-
-
-
-
 let me crown my thoughts that rage against
-my feed, 
+my feed of cravings that bind and chain to me
+puncture not bind that's what you did bitch
+
+
 
