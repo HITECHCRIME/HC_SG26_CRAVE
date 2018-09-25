@@ -13,12 +13,21 @@ https://www.youtube.com/watch?v=DXa-lqOGxrc
 constantly furious, never I get
 lusting after your marks inside my head
 smile's too sweet - course through my veins 
-with no effect
+with no effect fuck
 
+all people want or need, beyond their reach, we're not free
+stay out of my dreams, out of my tracks
+sow what you reap
+inside, my mind
+crops
+
+0:31 **VERSE 1**
 endlessly furious, never I get
 lusting after your marks inside my head
 smile's too sweet - course through my veins 
 with no effect fuck
+
+**CHORUS**
 every damn time 
 every crush dies 
 all of the nights
@@ -29,17 +38,18 @@ just put your hand against my neck,
 slow the bleed, slow the bleed
 slow the bleed, slow the bleeed ye
 
+**VERSE 2**
 
 
-all the people I want or need
-beyond the reach, I'm not free of
 
-cravings bind and chains to me
-bind to me
+of the cravings, bind and chain to me
+bind to me bitch
 
 
-now please stay out of my dreams
-out of my tracks
+
+
+
+
 
 
 
