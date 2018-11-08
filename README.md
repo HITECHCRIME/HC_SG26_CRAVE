@@ -23,13 +23,13 @@ crops
 
 **VERSE 1**
 endlessly furious, never I get
-lusting after your marks inside my head
+lusting (longing) after your marks inside my head  
 smile's too sweet - course through my veins 
 with no effect fuck
 
 **CHORUS**
 every damn time 
-every crush dies 
+every crush dies              
 all of the nights
 give me that handpoke or slit my throat 
 feel the shame - how about my crave ye
@@ -40,7 +40,7 @@ slow the bleed, slow the bleeed ye
 
 **VERSE 2**
 let me crown my thoughts that rage against
-my feed of cravings that bind and chain to me
+feed of cravings that bind and chain to me   
 puncture not bind that's what you did bitch
 
 
