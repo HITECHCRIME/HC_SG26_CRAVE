@@ -48,5 +48,9 @@ let me crown my thoughts that rage against
 feed of cravings that bind and chain to me   
 puncture not bind that's what you did bitch ???
 
+we're blocking and throwing ourselves
+against our own minds, fighting chance
+
+
 
 
