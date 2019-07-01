@@ -10,6 +10,9 @@ https://www.youtube.com/watch?v=DXa-lqOGxrc
 ^
 
 **INTRO**
+
+```
+
 all people want or need
 beyond their reach, we're not free
 stay out of dreams, out of my tracks
@@ -50,6 +53,8 @@ puncture not bind that's what you did bitch ???
 
 we're blocking and throwing ourselves
 against our own minds, fighting chance
+
+```
 
 
 
