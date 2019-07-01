@@ -1,4 +1,4 @@
-# HC_SG26_crave
+# MOTHNODE_ Crave
 
 https://www.youtube.com/watch?v=4kmJMR2-1Mg
 
@@ -12,6 +12,33 @@ https://www.youtube.com/watch?v=DXa-lqOGxrc
 **INTRO**
 
 ```
+
+all people want or need
+beyond their reach, 
+-- we're not free, dreams
+out of my tracks
+sow what you reap
+inside my mind
+
+all people want or need
+beyond their reach, 
+-- we're not free, dreams
+out of my tracks
+sow what you reap
+inside my mind
+
+all people want or need
+beyond their reach, 
+-- we're not free, dreams
+out of my tracks
+sow what you reap
+inside my mind
+
+
+xxxx
+
+
+
 
 all people want or need
 beyond their reach, we're not free
@@ -57,5 +84,7 @@ against our own minds, fighting chance
 ```
 
 
+NOTES
 
+Song about advertising and controlled desires.
 
