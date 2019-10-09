@@ -12,10 +12,6 @@ https://www.youtube.com/watch?v=DXa-lqOGxrc
 **INTRO**
 
 ```
-
-
-
-
 all people want or need
 beyond their reach, 
 -- we're not free, dreams
