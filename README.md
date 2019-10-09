@@ -115,17 +115,9 @@ against our own minds, fighting chance
 
 ## Notes
 
+Song about advertising and controlled desires.
+
 ## Music Video
 
 
-
-
-**INTRO**
-
-
-
-
-NOTES
-
-Song about advertising and controlled desires.
 
