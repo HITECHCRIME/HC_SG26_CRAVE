@@ -29,6 +29,8 @@ kawiarniane nagrywki
 
 zawsze na propsie, sprawdz to
 
+CHORUS x3 in the song?
+
 all people want or need
 beyond their reach
 
