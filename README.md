@@ -23,7 +23,6 @@ https://www.youtube.com/watch?v=DXa-lqOGxrc
 ## Lyrics
 
 ```
-
 raz raz raz
 brisman crew 2018 sprawdz to
 kawiarniane nagrywki
