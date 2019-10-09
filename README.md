@@ -18,7 +18,7 @@ https://www.youtube.com/watch?v=DXa-lqOGxrc
 
 **Title:** MOTHNODE / **Featuring:** MOTHNODE
 
-**Production:** x / **Lyrics:** MOTHNODE
+**Production:** Lezter (beat was sold but fuck it, just practice on it) / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
