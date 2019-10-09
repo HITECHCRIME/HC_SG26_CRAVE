@@ -26,18 +26,24 @@ https://www.youtube.com/watch?v=DXa-lqOGxrc
 
 ```
 all people want or need
-beyond their reach, 
+beyond their reach
+
 -- we're not free, dreams
+
 out of my tracks
 sow what you reap
+
 inside my mind
 
 all people want or need
-beyond their reach, 
+beyond their reach
+
 -- we're not free, dreams
+
 out of my tracks
 sow what you reap
-inside my mind
+
+(inside my mind)
 
 all people want or need
 beyond their reach, 
