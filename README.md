@@ -16,7 +16,7 @@ https://www.youtube.com/watch?v=DXa-lqOGxrc
 ^
 
 
-**Title:** MOTHNODE / **Featuring:** 
+**Title:** MOTHNODE / **Featuring:** MOTHNODE
 
 **Production:**  / **Lyrics:** 
 
