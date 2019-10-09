@@ -23,6 +23,13 @@ https://www.youtube.com/watch?v=DXa-lqOGxrc
 ## Lyrics
 
 ```
+
+raz raz raz
+brisman crew 2018 sprawdz to
+kawiarniane nagrywki
+
+zawsze na propsie, sprawdz to
+
 all people want or need
 beyond their reach
 
@@ -50,32 +57,6 @@ out of my tracks
 sow what you reap
 inside my mind
 
-x
-
-x
-
-
-xxxx
-
-
-
-
-all people want or need
-beyond their reach, we're not free
-stay out of dreams, out of my tracks
-sow what you reap
-inside my mind
-crops
-
-0:16
-constantly furious, never I get
-lusting after your marks inside my head
-smile's too sweet - course through my veins 
-with no effect fuck
-
-
-
-
 **VERSE 1**
 endlessly furious, never I get
 lusting (longing) after your marks inside my head  
@@ -100,6 +81,23 @@ puncture not bind that's what you did bitch ???
 
 we're blocking and throwing ourselves
 against our own minds, fighting chance
+all people want or need
+beyond their reach, we're not free
+stay out of dreams, out of my tracks
+sow what you reap
+inside my mind
+crops
+
+0:16
+constantly furious, never I get
+lusting after your marks inside my head
+smile's too sweet - course through my veins 
+with no effect fuck
+
+
+
+
+
 
 ```
 
